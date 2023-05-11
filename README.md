@@ -1,1 +1,1 @@
-https://skphillips.github.io/Plantlife/
+https://skphillips.github.io/EcoFriendly/
